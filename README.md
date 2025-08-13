@@ -21,7 +21,7 @@ I am particularly interested in **software development**, **algorithm design**, 
 
 </div>
 
-## Socials 🌐
+## How to Reach Me 🌐
 
 - **Email:** walkershaunj@gmail.com 
 - **LinkedIn:** [https://www.linkedin.com/in/shaunjwalker/](https://www.linkedin.com/in/shaunjwalker/)  
